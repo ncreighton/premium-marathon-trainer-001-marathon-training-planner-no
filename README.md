@@ -1,0 +1,2 @@
+# premium-marathon-trainer-001-marathon-training-planner-no
+Tired of juggling a dozen apps, spreadsheets, and sticky notes just to keep your marathon training on track? The Marathon Training Planner - Notion Template gives you a single, beautifully organized command center for every run, rest day, and race strategy.  This template replaces chaos with clarity, automatically calculating your weekly mileage, r
